@@ -1,2 +1,27 @@
-# Eruo-truck-simulator-2-crack
-This is a crack of euro truck simulator 2 version 1.4 (you can't play online)
+
+
+
+ 							---EURO TRUCK SIMULATOR INSTALLER---
+
+
+
+
+     								 *WANING
+
+						 -The crack is over license by Tronco2018
+ 
+ 						 -This crack is created only for people can't buy online
+ 						  if you can buy this game please do this and unistall this
+
+
+
+
+
+
+
+
+
+								--Licensed by Tronco2018--
+
+
+ 					
